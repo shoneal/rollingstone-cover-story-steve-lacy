@@ -1,1 +1,1 @@
-# rollingstone-cover-story-steve-lacy
+https://shoneal.github.io/rollingstone-cover-story-steve-lacy/
